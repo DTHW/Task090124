@@ -5,3 +5,4 @@ was lernen wir heute noch?
 Vermutlich lernen wir noch etwas mehr über Github, das wird bestimmt sehr spannend.
 
 Was denkst du, was wir morgen machen?
+Das weiß ich nicht frage ich den Dominik.
